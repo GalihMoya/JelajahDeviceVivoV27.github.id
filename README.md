@@ -1,0 +1,1 @@
+# JelajahDeviceVivoV27.github.id
